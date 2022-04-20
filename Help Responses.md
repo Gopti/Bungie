@@ -41,4 +41,5 @@ https://www.bungie.net/en-us/Explore/Detail/News/51172
 
 ## Vow Contest Emblem
 Hey
+
 If you got the notification when you launched your game, you claim it from your postmaster, it will give you the 24-hour completion triumph, claim that and you will get the emblem.
